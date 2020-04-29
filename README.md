@@ -1,2 +1,0 @@
-# ProjectIgnis-Ita
-Traduzione italiana
